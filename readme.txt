@@ -1,0 +1,1 @@
+Explanation about Aspire, the Student Activity
